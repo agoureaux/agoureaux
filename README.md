@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @agoureaux
+- 👋 Hi, I’m Amélie Goureaux
 - 👀 I’m interested in sustainability, techforgood, impact investing, rowing, yoga and pilates 
 - 🌱 I’m currently learning Entrepreneurship and sustainable finance at ESCP business school
 - 💞️ I’m looking to collaborate on Freya project
